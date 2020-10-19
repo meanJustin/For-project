@@ -1,5 +1,9 @@
 # For-project
 Connect MeanJustin623 via Skype
 
-Type this on your skype expert.biz@hotmail.com
-Live code is live:.cid.dc5804ab299aff67
+I am ready to discuss about the project.
+
+Type this on your skype meanjustin2020@hotmail.com
+Live code is live:.cid.1950c6ccd5a0a39d
+
+Thanks
